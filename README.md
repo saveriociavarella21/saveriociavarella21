@@ -5,7 +5,7 @@ Managing complexity is the soft essential to excel at work and in life:
 - observation is a fundamental activity to understand the way the context evolves and to keep up to date
 - specialisation becomes essential to become a cog in the whole.
 
-👋 Hello, my name is Saverio Ciavarella - Gen Z - Milan 
+👋 Hello, my name is Saverio Ciavarella - a simple Italian chill Gen Z guy Milan based
 
 📚 Degree in Marketing - Major in Big Data & Business Analytics
 
